@@ -4,7 +4,7 @@
 <br><br>➤ Vee / Connor / Sebastian | He(<a href="https://en.pronouns.page/@Diddles">/</a>)it/+neos | 18
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
 <br>➤ Whisper to Int! I tend to go off tab a lot, and if you dont whisp, i will probably miss ur message ˆ𐃷ˆ
-<br>➤ Usually chillin with <a href="https://rentry.co/NlGHTMAREPARASITE">Rhys</a> or <a href="https://github.com/Sharksters">Sharkie!</a> 
+<br>➤ Usually chillin with <a href="https://github.com/RIDLEYISM">Rhys</a> or <a href="https://github.com/Sharksters">Sharkie!</a> 
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
   <br> <a href="https://rentry.co/creature-of-indiscernible-origin">Rentry (temp for discord, wip)
   <br> <a href="https://oceavnn.carrd.co/">Carrd (mega wip)
