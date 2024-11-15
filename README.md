@@ -34,7 +34,7 @@ Hi!! I've already touched on a bit of this, but here's some extra info for you w
 </details>
 <br>
 <br> above image by <a href="https://www.tumblr.com/isatohlee">isatohlee on tumblr</a>
-<br> below image & pfp by <a href="https://www.tumblr.com/legowizard">legowizard on tumblr</a>
+<br> below image by <a href="https://www.tumblr.com/legowizard">legowizard on tumblr</a>
 <br>
 <br>
 <img src="https://64.media.tumblr.com/83e6104959e13488c485afacd24ddd2f/a6f253213ff5759d-aa/s2048x3072/4eb5dbe638cbfdacb69e1c0fb4c00a3a2082d52f.jpg" width="350px">
