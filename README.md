@@ -10,7 +10,7 @@
 <br>
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
   <br> <a href="https://rentry.co/Blood-is-fuel_Hell-is-full">Rentry</a> (v1 rentry wooo)
-<br> <a href="https://rentry.co/Better_Dodge"> Rentry </a> (Slingshot rentry :33) 
+<br> <a href="https://rentry.co/SI1ngshot"> Rentry </a> (Slingshot rentry :33) 
   <br> <a href="https://oceavnn.carrd.co/">Carrd</a> (mega wip)
 <br>
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
