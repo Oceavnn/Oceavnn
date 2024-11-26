@@ -14,7 +14,7 @@
   <br> <a href="https://oceavnn.carrd.co/">Carrd</a> (mega wip)
 
 <br>
-<br> I don't like doing this, but jesus fucking christ. Pigeon and your gang, for the love of god, leave Rhys alone. Manipulation exists. End of story. And don't come at me either, after all we never really talked in the first place.
+<br> I don't like doing this, but jesus fucking christ. Pigeon and your gang(friends), for the love of god, leave Rhys alone. Manipulation exists. End of story. And don't come at me either, after all we never really talked in the first place.
 <br>
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
 <br>
