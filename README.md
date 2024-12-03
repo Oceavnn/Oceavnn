@@ -1,4 +1,6 @@
 <p align="center">
+idfk whats happening with pressure i keep to my lil bubble
+<br><br>
 <img src="https://64.media.tumblr.com/3caf066fbf51c99316769ef7e4b9f392/86c13b276455d81f-8b/s540x810/595ef0a665dabe439f13bc6f393c840cd77aa9d0.jpg" width="350px">
 <br><br><b>"Welcome! Welcome! Don't be afraid, I'm not going to hurt you; despite what you may have seen, heard and/or been told. My name is Sebastian, your only friend."</b>
 <br><img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/3a9adf60716557fd-42/s400x600/5f0a3e29256d75106ca0c043aff7f30a5b1e22cd.gifv" width="350px">
