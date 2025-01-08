@@ -1,6 +1,6 @@
 <p align="center">
 gonna remake/retheme this eventually
-pfp by miaumiaurii tmblr/twt
+<br> pfp by miaumiaurii tmblr/twt
 <br><br>
 <br><br>➤ Vee / Ocean, a creature of many names | He(<a href="https://en.pronouns.page/@Diddles">/</a>)it/+neos | 18
 <br>➤ Whisper to Int! I tend to go off tab a lot, and if you dont whisp, i will probably miss ur message .:}
